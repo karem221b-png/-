@@ -1,1 +1,1 @@
-# -
+# -Brew Haven Coffee Shop is your perfect destination to enjoy a carefully crafted cup of coffee made from the finest freshly roasted beans. We are committed to creating a unique experience that combines authentic flavors with a cozy atmosphere, where you can relax or get work done in a modern and comfortable setting. Along with our wide selection of coffee, we also serve fresh pastries, hot and cold drinks to complete your experience. At Brew Haven, every cup is made with passion and love to bring you exceptional moments every day.
